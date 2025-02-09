@@ -1,4 +1,4 @@
-## Hi there 👋
+## Ion need a shiny profile like all of these colorful stuff to my profile to show that im a dev. useless stuff for dumb ppl. yall show at my commits to know if im coding or not.
 
 <!--
 **vinyllicia/vinyllicia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
